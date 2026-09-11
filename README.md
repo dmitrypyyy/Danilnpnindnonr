@@ -1,2 +1,3 @@
 # Danilnpnindnonr
-i like algoritmika
+ohhhh
+
